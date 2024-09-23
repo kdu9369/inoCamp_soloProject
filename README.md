@@ -1,0 +1,1 @@
+# inoCamp_soloProject
